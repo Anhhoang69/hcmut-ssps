@@ -1,4 +1,4 @@
-![Video giới thiệu dự án](https://img.youtube.com/vi/watch?v=-4fMdu2onvw/0.jpg)
+[Video giới thiệu dự án](https://www.youtube.com/watch?v=watch?v=-4fMdu2onvw)
 
 # HCMUT-SPSS
 
